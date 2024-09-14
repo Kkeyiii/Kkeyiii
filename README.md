@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kkeyiii
-- 👀 I’m interested in wrestling, track + field, Muay Thai
+- 👀 I’m interested in wrestling, track + field, XC, 
 - 🌱 I’m currently learning Chinese
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: I have a goldendoodle
